@@ -53,3 +53,5 @@ Socia has park mark.
 Socia has park cross.
 
 Socia has major.
+
+Socia is Life certain.
