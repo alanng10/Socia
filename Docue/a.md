@@ -55,3 +55,5 @@ Socia has park cross.
 Socia has major.
 
 Socia is Life certain.
+
+Socia Life certain is for Life owner.
