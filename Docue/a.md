@@ -66,4 +66,4 @@ Socia is gift.
 
 Socia is alway fair to gift to human.
 
-Socia is most outer society correct.
+Socia is most gain society correct.
