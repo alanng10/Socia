@@ -61,3 +61,5 @@ Socia Life certain is for Life owner.
 Socia is Life certain Park.
 
 Socia is Life most base certain.
+
+Socia is gift.
