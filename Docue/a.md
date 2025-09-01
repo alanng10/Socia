@@ -63,3 +63,5 @@ Socia is Life certain Park.
 Socia is Life most base certain.
 
 Socia is gift.
+
+Socia is alway fair to gift to human.
