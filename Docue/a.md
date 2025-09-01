@@ -57,3 +57,5 @@ Socia has major.
 Socia is Life certain.
 
 Socia Life certain is for Life owner.
+
+Socia is Life certain Park.
